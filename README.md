@@ -1,0 +1,2 @@
+# PirmaisMajasDarbsJaunsMeginajums
+Izmeginajums majas darbam
